@@ -1,1 +1,2 @@
-Ini merupakan bentuk kepedulian saya terhadap  terhadap tugas yang diberikan oleh yang paling baik saya. berikut merupakan jadwal pembelajaran saya https://docs.google.com/spreadsheets/d/1q-iean7J3grRCpcjMLmNYbHFtACkbbuhpb29x37tXkQ/edit?gid=0#gid=0 disetiap minggu mempunyai target challenge yang saya buat berikut:
+Ini merupakan bentuk kepedulian saya terhadap  terhadap tugas yang diberikan oleh yang paling baik saya. berikut merupakan jadwal pembelajaran saya https://docs.google.com/spreadsheets/d/1q-iean7J3grRCpcjMLmNYbHFtACkbbuhpb29x37tXkQ/edit?gid=0#gid=0
+disetiap minggu mempunyai target challenge yang saya buat berikut:
