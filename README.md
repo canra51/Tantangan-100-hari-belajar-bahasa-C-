@@ -1,2 +1,1 @@
-# Tantangan-100-hari-belajar-bahasa-C-
-Ini merupakan salah tugas yang diberikan oleh dosen yang paling baik sedunia. maka dengan ini saya membuat challenge belajar 100 hari
+Ini merupakan bentuk kepedulian saya terhadap  terhadap tugas yang diberikan oleh yang paling baik saya. berikut merupakan jadwal pembelajaran saya
